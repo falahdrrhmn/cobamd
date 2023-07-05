@@ -1,7 +1,8 @@
 Saat ini perpustakaan digital OnnoCenter ada sekitar 2-6TB dan bisa di copy. Ini hasil mengumpulkan dari berbagai sumber di Internet selama 10++ tahun menggunakan torrent. Perpustakaan ini '''TIDAK DI HOSTING''' di Internet, maklum hasil torrent. Bagi anda yang ingin mengumpulkan sendiri juga bisa menggunakan torrent + ''super sabar'' :) ...
 
 
-==WARNING==
+== WARNING ==
+
 '''eBook dll, 99.9% berbahasa INGGRIS!!''' - Kalau anda tidak bersedia membaca eBook bahasa Inggris, sebaiknya jangan copy perpustakaan ini.
 
 
